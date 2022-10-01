@@ -15,7 +15,9 @@
 > **叁号游戏**  <a href="http://jlh.125ks.cn/cxk/dinogame/">蔡先生跳跳乐</a>
 
 
-> **肆号游戏**(这个更牛逼)  <a href="https://allentome.github.io/fly_boy/index.html">蔡先生超帅</a>
+> **肆号游戏**  <a href="https://allentome.github.io/fly_boy/index.html">蔡先生超帅</a>
+
+> **伍号游戏**  <a href="http://www.zxki.cn/k">蔡先生邀你视频通话</a>
 
 <br/>
 <br/>
